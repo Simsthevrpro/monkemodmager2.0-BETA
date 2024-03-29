@@ -1,0 +1,1 @@
+i thank you for choosing monkey mod manger 2.0 thsi a remake of monkey mod manger the old mmm had out dated mod this one will have mod menus and other mods. those bepix weird things are useless just icnore them. if you want the souce code just open it with Dnspy it is free
